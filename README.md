@@ -1,0 +1,1 @@
+# ugolok_potrebitelya_Degtyarev_Sovetnica
